@@ -1,2 +1,2 @@
 # SreenathAlleppy
-This is created byS reenath
+This is created by Sreenath
